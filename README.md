@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aditimahajan111@gmail.com**
 
-- 📄 Know about my [experiences](https://drive.google.com/file/d/1TucM2PE0tPdXcUnrd0iifJCP9OLeVtE5/view?usp=sharing)
+- 📄 Know about my [experiences](https://drive.google.com/file/d/1TGUJbC69L0s4Z3meAj-SrN5GwQizr6a8/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
